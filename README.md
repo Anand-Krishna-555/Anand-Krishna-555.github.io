@@ -1,1 +1,1 @@
-Get Out of My Site
+Get out of My Site
